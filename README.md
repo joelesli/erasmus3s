@@ -1,8 +1,11 @@
 # Erasmus 3s
 
+## [SWOP](https://erasmus-frankfurt.swop.schule/login)
+
 ## KW 17 20. April
 
 **Intro Mail**
+
 noch heute erhalten Sie den Arbeitsplan für die kommende Woche. Ich habe in Deutsch und Mathematik die Übungen in Flex und Flo gelb bzw. Lola grün erst ab Dienstag angesetzt, da noch nicht alle Kinder die Hefte erhalten haben (Mr. Bonnici hat veranlasst, dass Ihnen die Hefte zugesandt werden).
 
 Im Arbeitsplan gibt es Aufgaben zum Lese- und Hörverständnis, die ich in meiner Dropbox ablegen musste, da sie zu groß für den Schulserver waren. Das gleiche gilt für die Filme zu den Forscheraufgaben.
