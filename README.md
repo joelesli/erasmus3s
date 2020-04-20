@@ -16,7 +16,6 @@ Sie müssen nicht alle Materialien herunterladen, sondern nur diejenigen, die im
 
 Ich kann Ihnen vorab meinen Teil des Planes zusenden, damit Sie wissen, welche Dateien Sie benötigen. Dies ist aber nicht der vollständige Plan; Senor Nunez muss seinen Teil noch einfügen. Es hat etwas länger gedauert, den neuen Plan zu erstellen, weil ich versucht habe, dabei auf diverse Elternwünsche einzugehen. Aber der endgültige Plan wird noch heute per Mail verschickt.
 
-[Arbeitsplan Q4](<KW\ 17\ 20\ April/Arbeitsplan\ Q\ 4.pdf>)
 
 ### Känguru Wettbewerb
 
