@@ -15,7 +15,8 @@ Die Aufgaben finden Sie auf SWOP.
 
   * Alle Ampeln
       * Bearbeite jeden Tag ein Kapitel des Lesetrainings so, wie ich es euch gezeigt habe.
-      * [Hören 1_1](https://www.dropbox.com/s/kr9lxrq6wei02h6/1_1%20Warum%20braucht%20man%20im%20Winter%20Sonnencreme.wav?dl=0) lesen Seite 8 
+      * [Hören 1_1](https://www.dropbox.com/s/kr9lxrq6wei02h6/1_1%20Warum%20braucht%20man%20im%20Winter%20Sonnencreme.wav?dl=0) 
+      * [lesen Seite 8](./KW%2017%2020%20April/Deutsch/Filius_Teil_1.pdf)
 
   * Gelb & Rote Ampeln
       * Bearbeite in der grünen Lola die Seiten 41 bis 44 (einschließlich). 
@@ -45,7 +46,8 @@ Die Aufgaben finden Sie auf SWOP.
 
     * Alle Ampeln
       * Bearbeite jeden Tag ein Kapitel des Lesetrainings so, wie ich es euch gezeigt habe.
-      * [Hören 1_2](https://www.dropbox.com/s/gve86we3y9wudzo/1_2%20Wieso%20bekommt%20man%20eigentlich%20Schnupfen.wav?dl=0) lesen Seite 9 
+      * [Hören 1_2](https://www.dropbox.com/s/gve86we3y9wudzo/1_2%20Wieso%20bekommt%20man%20eigentlich%20Schnupfen.wav?dl=0) 
+      * [lesen Seite 9](./KW%2017%2020%20April/Deutsch/Filius_Teil_1.pdf) 
 
     * Gelb & Rote Ampeln
         * Bearbeite in der grünen Lola die Seiten 41 bis 44 (einschließlich). 
@@ -82,7 +84,8 @@ Die Aufgaben finden Sie auf SWOP.
 
     * Alle Ampeln
       * Bearbeite jeden Tag ein Kapitel des Lesetrainings so, wie ich es euch gezeigt habe.
-      * [Hören 1_3](https://www.dropbox.com/s/pzrqilh5u6jyrnk/1_3%20Warum%20ist%20Sport%20gesund.wav?dl=0) lesen Seite 10 
+      * [Hören 1_3](https://www.dropbox.com/s/pzrqilh5u6jyrnk/1_3%20Warum%20ist%20Sport%20gesund.wav?dl=0) 
+      * [lesen Seite 10](./KW%2017%2020%20April/Deutsch/Filius_Teil_1.pdf) 
 
     * Gelb & Rote Ampeln
         * Bearbeite in der grünen Lola die Seiten 41 bis 44 (einschließlich). 
@@ -117,7 +120,8 @@ Die Aufgaben finden Sie auf SWOP.
 
     * Alle Ampeln
       * Bearbeite jeden Tag ein Kapitel des Lesetrainings so, wie ich es euch gezeigt habe.
-      * [Hören 1_4](https://www.dropbox.com/s/h38ewadr2gij6gn/1_4%20Wie%20ernaehre%20ich%20mich%20gesund.wav?dl=0) lesen Seite 11 
+      * [Hören 1_4](https://www.dropbox.com/s/h38ewadr2gij6gn/1_4%20Wie%20ernaehre%20ich%20mich%20gesund.wav?dl=0) 
+      * [lesen Seite 11](./KW%2017%2020%20April/Deutsch/Filius_Teil_1.pdf) 
 
     * Gelb & Rote Ampeln
         * Bearbeite in der grünen Lola die Seiten 41 bis 44 (einschließlich). 
@@ -149,7 +153,8 @@ Die Aufgaben finden Sie auf SWOP.
 
     * Alle Ampeln
       * Bearbeite jeden Tag ein Kapitel des Lesetrainings so, wie ich es euch gezeigt habe.
-      * [Hören 1_5](https://www.dropbox.com/s/k9e871te0vy34ae/1_5%20Warum%20ist%20Zucker%20ungesund.wav?dl=0) lesen Seite 12
+      * [Hören 1_5](https://www.dropbox.com/s/k9e871te0vy34ae/1_5%20Warum%20ist%20Zucker%20ungesund.wav?dl=0) 
+      * [lesen Seite 12](./KW%2017%2020%20April/Deutsch/Filius_Teil_1.pdf)
 
     * Gelb & Rote Ampeln
         * Bearbeite in der grünen Lola die Seiten 41 bis 44 (einschließlich). 
