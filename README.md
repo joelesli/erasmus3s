@@ -5,8 +5,8 @@
 ## KW 17 20. April
 
 ### Arbeitsplan
-* Schottplan: [Arbeitsplan](<./KW 17 20 April/Arbeitsplan.pdf>)
-* Nuñezplan: [Arbeitsplan](<./KW 17 20 April/20-24 abril_wochenplan.pdf>) für nächste Woche für die Fächer Spanisch, Sachunterricht und Mathe (Gewicht). Es gibt pflichtige Aufgaben für alle Kinder ("todos") und zusätzliche Aufgaben ("extra").
+* Schottplan: [Arbeitsplan](<./KW 17 20 April/Arbeitsplan.doc.pdf>)
+* Nuñezplan: [Arbeitsplan](<./KW 17 20 April/20-24 abril_wochenplan.doc.pdf>) für nächste Woche für die Fächer Spanisch, Sachunterricht und Mathe (Gewicht). Es gibt pflichtige Aufgaben für alle Kinder ("todos") und zusätzliche Aufgaben ("extra").
 Die Aufgaben finden Sie auf SWOP.
 
 ### Montag
