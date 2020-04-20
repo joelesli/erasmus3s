@@ -4,6 +4,172 @@
 
 ## KW 17 20. April
 
+### Montag
+
+* Deutsch
+
+  * Alle Ampeln
+      * Bearbeite jeden Tag ein Kapitel des Lesetrainings so, wie ich es euch gezeigt habe.
+      * [Hören 1_1](https://www.dropbox.com/s/kr9lxrq6wei02h6/1_1%20Warum%20braucht%20man%20im%20Winter%20Sonnencreme.wav?dl=0) lesen Seite 8 
+
+  * Gelb & Rote Ampeln
+      * Bearbeite in der grünen Lola die Seiten 41 bis 44 (einschließlich). 
+
+* Mathe
+
+    * Grüne Ampel
+        * Mal- und Geteiltaufgaben in Anton (Pin ist erstellt)
+        * Anton
+        * Übe Multiplikation und Division mit großen Zahlen
+
+    * Gelb & Rote Ampeln
+        * Arbeitsblätter zur Symmetrie
+
+* Español
+
+    * Alle Ampeln
+        * Juego “la palabra más larga” (ver video de Sr. Núñez) 
+        * Escribe seis frases
+
+* Forscheraufgabe
+    * Suche dir eine Forscheraufgabe aus.
+
+### Dienstag
+
+* Deutsch
+
+    * Alle Ampeln
+      * Bearbeite jeden Tag ein Kapitel des Lesetrainings so, wie ich es euch gezeigt habe.
+      * [Hören 1_2](https://www.dropbox.com/s/gve86we3y9wudzo/1_2%20Wieso%20bekommt%20man%20eigentlich%20Schnupfen.wav?dl=0) lesen Seite 9 
+
+    * Gelb & Rote Ampeln
+        * Bearbeite in der grünen Lola die Seiten 41 bis 44 (einschließlich). 
+    
+    * Grüne Ampel
+        * Di: S.41
+        * Di: S. 41 Nr., Schreibe die 5 Sätze in dein Heft.
+
+    * Mathe
+
+        * Grüne Ampel
+            * Bearbeite täglich eine Seite im Förderheft
+            * Di: S.  73
+            * Übe Multiplikation und Division mit großen Zahlen
+            * Di: S.1
+            * Flex und Flo lila, página 36, ejercicio 1-3 (tú solo)
+
+        * Gelb & Rote Ampeln
+            * Arbeitsblätter zur Symmetrie
+
+    * Sachunterricht
+
+        * Grüne Ampel
+          * Lesen: „WAS IST WAS Der Welttag des Buches“
+          * Lesen: „WAS IST WAS Cervantes Don Quijote de la Mancha“
+
+
+    * Forscheraufgabe
+        * Suche dir eine Forscheraufgabe aus.
+
+### Mittwoch
+
+* Deutsch
+
+    * Alle Ampeln
+      * Bearbeite jeden Tag ein Kapitel des Lesetrainings so, wie ich es euch gezeigt habe.
+      * [Hören 1_3](https://www.dropbox.com/s/pzrqilh5u6jyrnk/1_3%20Warum%20ist%20Sport%20gesund.wav?dl=0) lesen Seite 10 
+
+    * Gelb & Rote Ampeln
+        * Bearbeite in der grünen Lola die Seiten 41 bis 44 (einschließlich). 
+    
+    * Grüne Ampel
+        * Mi: S.42
+        * Mi: S. 42 Nr. 3, Schreibe in dein Heft.
+
+    * Mathe
+
+        * Grüne Ampel
+            * Bearbeite täglich eine Seite im Förderheft
+            * Mi:  S. 74
+            * Übe Multiplikation und Division mit großen Zahlen
+            * Mi: S. 2 Nr. 1 - 3
+
+        * Gelb & Rote Ampeln
+            * Arbeitsblätter zur Symmetrie
+
+    * Español (EXTRA)
+      * Palabras con R: Escribe 20 palabras que conozcas en tu cuaderno y tradúcelas al alemán.
+      * Crucigrama con dibujos
+      * Imágenes
+
+
+    * Forscheraufgabe
+        * Suche dir eine Forscheraufgabe aus.
+
+### Donnerstag
+
+* Deutsch
+
+    * Alle Ampeln
+      * Bearbeite jeden Tag ein Kapitel des Lesetrainings so, wie ich es euch gezeigt habe.
+      * [Hören 1_4](https://www.dropbox.com/s/h38ewadr2gij6gn/1_4%20Wie%20ernaehre%20ich%20mich%20gesund.wav?dl=0) lesen Seite 11 
+
+    * Gelb & Rote Ampeln
+        * Bearbeite in der grünen Lola die Seiten 41 bis 44 (einschließlich). 
+    
+    * Grüne Ampel
+        * Do: S.43
+        * Do: S. 43 Nr., Schreibe in dein Heft.
+
+    * Mathe
+
+        * Grüne Ampel
+            * Bearbeite täglich eine Seite im Förderheft
+            * Do: S. 75
+            * Übe Multiplikation und Division mit großen Zahlen
+            * Do: S. 2 Nr. 4 und S.3 
+
+        * Gelb & Rote Ampeln
+            * Arbeitsblätter zur Symmetrie
+  
+        * Extra
+          * Flex und Flo lila, página 36, ejercicio 4-5 (tú solo)
+
+    * Forscheraufgabe
+        * Suche dir eine Forscheraufgabe aus.
+
+### Freitag
+
+  * Deutsch
+
+    * Alle Ampeln
+      * Bearbeite jeden Tag ein Kapitel des Lesetrainings so, wie ich es euch gezeigt habe.
+      * [Hören 1_5](https://www.dropbox.com/s/k9e871te0vy34ae/1_5%20Warum%20ist%20Zucker%20ungesund.wav?dl=0) lesen Seite 12
+
+    * Gelb & Rote Ampeln
+        * Bearbeite in der grünen Lola die Seiten 41 bis 44 (einschließlich). 
+    
+    * Grüne Ampel
+        * Fr. S. 44
+        * Fr. S. 44 Nr. 1, Schreibe in dein Heft.
+
+    * Mathe
+
+        * Grüne Ampel
+            * Bearbeite täglich eine Seite im Förderheft
+            * Fr: S. 76
+            * Übe Multiplikation und Division mit großen Zahlen
+            * Fr. S. 4 Nr: 1 - 3
+
+        * Gelb & Rote Ampeln
+            * Arbeitsblätter zur Symmetrie
+
+    * Sachunterricht (EXTRA)
+      * Video Don Quijote (español)
+
+    * Forscheraufgabe
+        * Suche dir eine Forscheraufgabe aus.
+
 **Intro Mail**
 
 noch heute erhalten Sie den Arbeitsplan für die kommende Woche. Ich habe in Deutsch und Mathematik die Übungen in Flex und Flo gelb bzw. Lola grün erst ab Dienstag angesetzt, da noch nicht alle Kinder die Hefte erhalten haben (Mr. Bonnici hat veranlasst, dass Ihnen die Hefte zugesandt werden).
