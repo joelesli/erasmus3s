@@ -1,6 +1,6 @@
 # Erasmus 3s
 
-## [SWOP](https://erasmus-frankfurt.swop.schule/login)
+## [SWOP](https://erasmus-frankfurt.swop.schule/schule/homework)
 
 ## KW 17 20. April
 
@@ -41,6 +41,7 @@ Dazu benötigen die Kinder in der ersten Phase aus dem Trainingsheft die Seiten 
 
 ## Mathe
 
+* [Wiederholung Mathematik](https://www.dropbox.com/sh/lbegywd3pyoycyj/AAClYmmy1G-MYIl4GAh8vr89a?dl=0)
 * [Geometrie 1](https://www.dropbox.com/sh/av5p1k9i1ofdp6f/AADbYIWwx2iGgvEhfT4MNgAEa?dl=0) - Dropbox
 
 ### Forscheraufgaben
