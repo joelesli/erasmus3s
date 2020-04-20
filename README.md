@@ -4,6 +4,11 @@
 
 ## KW 17 20. April
 
+### Arbeitsplan
+* Schottplan: [Arbeitsplan](<./KW 17 20 April/Arbeitsplan.pdf>)
+* Nuñezplan: [Arbeitsplan](<./KW 17 20 April/20-24 abril_wochenplan.pdf>) für nächste Woche für die Fächer Spanisch, Sachunterricht und Mathe (Gewicht). Es gibt pflichtige Aufgaben für alle Kinder ("todos") und zusätzliche Aufgaben ("extra").
+Die Aufgaben finden Sie auf SWOP.
+
 ### Montag
 
 * Deutsch
@@ -186,11 +191,6 @@ Ich kann Ihnen vorab meinen Teil des Planes zusenden, damit Sie wissen, welche D
 ### Känguru Wettbewerb
 
 "Da der Känguru Wettbewerb nicht wie geplant stattfinden konnte, gibt es nun eine neue, digitale Möglichkeit, diesen „nachzuholen“. Ab dem 20.04. bis zum 30.04. haben die Kinder die Möglichkeit, den Test von zu Hause zu absolvieren. Hierfür habe ich bereits Accounts für alle Teilnehmer, die angemeldet wurden, bei Snappet erstellt. Diese werde ich euch am kommenden Dienstag (inklusive einer genauen Vorgangsbeschreibung des Programms) zukommen lassen. Es wäre schön, wenn der Großteil auf diesem Weg teilnehmen kann. Das Startgeld ist bereits gezahlt und die Preise werden mir nach Absolvieren des Tests zugeschickt. Ich bin mir sicher, dass die Kinder sich freuen, trotz der ganzen Umstände am Känguru- Wettbewerb teilnehmen zu können."
-
-### Arbeitsplan
-* Schottplan: [Arbeitsplan](<./KW 17 20 April/Arbeitsplan.docx>)
-* Nuñezplan: [Arbeitsplan](<./KW 17 20 April/20-24 abril_wochenplan.doc>) für nächste Woche für die Fächer Spanisch, Sachunterricht und Mathe (Gewicht). Es gibt pflichtige Aufgaben für alle Kinder ("todos") und zusätzliche Aufgaben ("extra").
-Die Aufgaben finden Sie auf SWOP.
 
 ### Deutsch
 
